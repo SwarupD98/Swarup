@@ -1,2 +1,3 @@
 # Swarup
 Hey, Currently I am working in automation field company so I have 5 months experience in deltaV DC's automation software but hungry to learn software developer courses.
+And need a job in IT services as developer.
